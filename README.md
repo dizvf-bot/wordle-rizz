@@ -1,0 +1,2 @@
+# wordle-rizz
+eaaa
